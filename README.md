@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kenyoste
 - 👀 I am interested in building websites.
-- 🌱I am currently in the learning phase. (This is a site in my learning phase http://kenyoste.com)
+- 🌱I am currently in the learning phase. (My website:  http://kenyoste.com )
 - 💞️ I guess I can't set up corporate sites right now
 - 📫 My internet name is kenyoste I'm everywhere.
 
